@@ -2,6 +2,6 @@ Welcome to my GitHub page! I am currently studying to get a bachelor's degree in
 
 📫 How to reach me:
 
-    Email: alavertu36@gmail.com
-    Personal Website: alexlavertu.com
-    LinkedIn: https://www.linkedin.com/in/alexander-lavertu-145865207/
+    📨 Email-----------------> alavertu36@gmail.com
+    🔗 Personal Website------> alexlavertu.com
+    🔗 LinkedIn--------------> https://www.linkedin.com/in/alexanderlavertu)http://www.linkedin.com/in/alexanderlavertu
