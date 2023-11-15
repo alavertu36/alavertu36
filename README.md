@@ -1,4 +1,4 @@
-Welcome to my GitHub page! I am currently studying to get a bachelor's degree in Business Administration with a concentration in Computer Information Systems.
+Welcome to my GitHub page! I am currently studying to get a Bachelor of Science degree in Business Administration with a concentration in Computer Information Systems.
 
 📫 How to reach me:
 
